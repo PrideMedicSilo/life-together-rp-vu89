@@ -1,4 +1,4 @@
-
+jujutsu shenanigans instant Script offers the most advanced jujutsu shenanigans Script, with auto-farm and one-hit kill. Perfect for dominating any
 
 
 
